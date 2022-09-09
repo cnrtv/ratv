@@ -2,4 +2,4 @@
 
 中文视听网手机版app下载 中文电视在线直播 在线直播网 中文广播在线直播 中文电视在线直播 中文在线广播 在线电视 网络直播网
 
-中文视听网app下载地址：http://gbtv.sourceforge.net/caidian/dispbbs.php?boardid=5&id=1885
+中文视听网app下载地址：http://www.220123.xyz
